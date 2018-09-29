@@ -1,1 +1,1 @@
-Shaving Yaks -- Advancing Humaninty.
+Shaving Yaks == Advancing Humanity
