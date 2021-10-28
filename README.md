@@ -1,1 +1,1 @@
-Shaving Yaks == Advancing Humanity
+Shaving Yaks Collectively to Advance the Progress
